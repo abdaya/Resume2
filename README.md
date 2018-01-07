@@ -1,7 +1,6 @@
 # Resume2 yes
 
-
-abdellah
+dellah
 ahmed
 66
 yes mohamed this will blow your mind
